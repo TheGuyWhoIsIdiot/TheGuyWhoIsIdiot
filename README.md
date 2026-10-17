@@ -1,5 +1,8 @@
 Professional idiot
 
+> [!IMPORTANT]
+> All of my socials are not available for communication. if you wish to contact me, only through email.
+
 # Socials
 - Twitter/X: @def_meditext
 - Bluesky: @meditext.bsky.social
